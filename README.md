@@ -35,10 +35,8 @@ Jika pixeldrain sudah mencapai limit download maka gunakan alternatif url dibawa
 
 <img src="https://i.mydramalist.com/VXOLzy_4f.jpg" height= "500" >
 
-**_Sinopsis_** : Gadis nakal, Ling Miao Miao, secara tidak sengaja memasuki sistem misi novel Monster Hunting dan menjadi karakter pendukung yang jahat. Untuk kembali ke dunia nyata, dia harus menyelesaikan tugas sistem — menang atas pemuda misterius dan bengkok, Mu Sheng. Sepanjang jalan, mereka bekerja sama dengan Mu Yao, anggota keluarga pemburu monster, dan Liu Fu Yi, seorang pemburu monster. Bersama-sama, mereka melawan monster dan naik level. Ketika misi berkembang, mereka secara bertahap menyelesaikan permusuhan antara manusia dan monster, menulis ulang akhir yang ditakdirkan, dan menyelamatkan dunia.
-<br>
-**_Rating_** : 8.5⭐
-**_Network_** : Tencent, WeTV
+> **_Sinopsis_** : Gadis nakal, Ling Miao Miao, secara tidak sengaja memasuki sistem misi novel Monster Hunting dan menjadi karakter pendukung yang jahat. Untuk kembali ke dunia nyata, dia harus menyelesaikan tugas sistem — menang atas pemuda misterius dan bengkok, Mu Sheng. Sepanjang jalan, mereka bekerja sama dengan Mu Yao, anggota keluarga pemburu monster, dan Liu Fu Yi, seorang pemburu monster. Bersama-sama, mereka melawan monster dan naik level. Ketika misi berkembang, mereka secara bertahap menyelesaikan permusuhan antara manusia dan monster, menulis ulang akhir yang ditakdirkan, dan menyelamatkan dunia.
+> <br> > **_Rating_** : 8.5⭐ <br> > **_Network_** : Tencent, WeTV
 
 ## ⬇ Download URL
 
@@ -80,10 +78,8 @@ Jika pixeldrain sudah mencapai limit download maka gunakan alternatif url dibawa
 
 <img src="https://i.mydramalist.com/pd82Oe_4f.jpg" height= "500">
 
-**_Sinopsis_** : Mu Di, seorang wanita profesional Suo Na dengan pendidikan dan kemampuan tinggi, kembali ke rumah untuk memulihkan diri dari cedera. Di sana, ia bertemu Bai Lang, seorang bos perusahaan yang cerdas dan cakap. Karena suatu insiden, keduanya terpaksa menjalankan bisnis bersama. Dalam proses membangun bisnis bersama, Mu Di tidak hanya merasakan kehangatan manusia yang berbeda, tetapi juga disambut dengan tangan terbuka oleh penduduk setempat, mendapat inspirasi untuk menggabungkan seni tradisional dan budaya pop. Mu Di memiliki pemahaman baru tentang musik rakyat yang dulunya ia sukai. Ia telah membuat kemajuan terus-menerus dalam pertunjukan dan telah menerima banyak pujian. Ia juga telah mengubah awal yang sulit bersama Bai Lang menjadi lebih baik. Pada akhirnya, Mu Di dan anggota orkestra rakyat mengambil kesempatan untuk membuat musik rakyat tradisional yang dikenal dan disukai banyak orang. Di bawah pengaruh Bai Lang, Mu Di meruntuhkan temboknya dan menghadapi hatinya. Ia tidak hanya menemukan karier yang ia cintai, tetapi ia juga menemukan rumah yang ia cintai.
-<br>
-**_Rating_** : 7.8⭐ <br>
-**_Network_** : iQIYI
+> **_Sinopsis_** : Mu Di, seorang wanita profesional Suo Na dengan pendidikan dan kemampuan tinggi, kembali ke rumah untuk memulihkan diri dari cedera. Di sana, ia bertemu Bai Lang, seorang bos perusahaan yang cerdas dan cakap. Karena suatu insiden, keduanya terpaksa menjalankan bisnis bersama. Dalam proses membangun bisnis bersama, Mu Di tidak hanya merasakan kehangatan manusia yang berbeda, tetapi juga disambut dengan tangan terbuka oleh penduduk setempat, mendapat inspirasi untuk menggabungkan seni tradisional dan budaya pop. Mu Di memiliki pemahaman baru tentang musik rakyat yang dulunya ia sukai. Ia telah membuat kemajuan terus-menerus dalam pertunjukan dan telah menerima banyak pujian. Ia juga telah mengubah awal yang sulit bersama Bai Lang menjadi lebih baik. Pada akhirnya, Mu Di dan anggota orkestra rakyat mengambil kesempatan untuk membuat musik rakyat tradisional yang dikenal dan disukai banyak orang. Di bawah pengaruh Bai Lang, Mu Di meruntuhkan temboknya dan menghadapi hatinya. Ia tidak hanya menemukan karier yang ia cintai, tetapi ia juga menemukan rumah yang ia cintai.
+> <br> >**_Rating_** : 7.8⭐ <br> >**_Network_** : iQIYI
 
 ## ⬇ Download URL
 
@@ -124,10 +120,8 @@ Jika pixeldrain sudah mencapai limit download maka gunakan alternatif url dibawa
 
 <img src="https://i.mydramalist.com/E5djbW_4c.jpg?v=1" height= "500">
 
-**_Sinopsis_** : Ketika Liu Xi Lai dan Tian Tian pertama kali bertemu, itu bagaikan sebuah meteorit yang menghantam Bumi. Namun Xi Lai menyadari bahwa gadis yang menantangnya ini tampaknya menjadi satu-satunya hal yang dapat menghentikan dirinya dari pingsan, jadi ia memutuskan untuk tetap membawa "penawar racun" kecilnya di sisinya sebagai asistennya. Siapa yang lebih terkejut saat mengetahui bahwa saat mereka menghabiskan waktu bersama dan membentuk ikatan yang kuat, cinta yang kuat dan indah tumbuh diam-diam di antara keduanya.
-<br>
-**_Rating_** : 7.6⭐ <br>
-**_Network_** : iQIYI
+> **_Sinopsis_** : Ketika Liu Xi Lai dan Tian Tian pertama kali bertemu, itu bagaikan sebuah meteorit yang menghantam Bumi. Namun Xi Lai menyadari bahwa gadis yang menantangnya ini tampaknya menjadi satu-satunya hal yang dapat menghentikan dirinya dari pingsan, jadi ia memutuskan untuk tetap membawa "penawar racun" kecilnya di sisinya sebagai asistennya. Siapa yang lebih terkejut saat mengetahui bahwa saat mereka menghabiskan waktu bersama dan membentuk ikatan yang kuat, cinta yang kuat dan indah tumbuh diam-diam di antara keduanya.
+> <br> >**_Rating_** : 7.6⭐ <br> >**_Network_** : iQIYI
 
 ## ⬇ Download URL
 
@@ -156,10 +150,8 @@ Jika pixeldrain sudah mencapai limit download maka gunakan alternatif url dibawa
 
 <img src="https://i.mydramalist.com/1wKdRb_4c.jpg?v=1" height= "500">
 
-**_Sinopsis_** : Meskipun tidak memiliki hubungan darah, Kim San Ha, Yun Ju Won, dan Kang Hae Jun memiliki ikatan yang erat satu sama lain. Ketiganya menghabiskan masa remaja mereka dengan dibesarkan oleh ayah Ju Won, Jeong Jae, dan ayah San Ha, Dae Uk, yang berusaha sebaik mungkin untuk memberi mereka masa kecil yang bahagia saat mereka pulih dari trauma masa lalu. Namun, setelah mencapai usia dewasa, San Ha dan Hae Jun mencari keluarga kandung mereka, meninggalkan Ju Won. Sepuluh tahun kemudian, kelima anggota keluarga yang mereka temukan bersatu kembali, tetapi keadaan tidak lagi sama seperti dulu. Ju Won menyimpan dendam setelah merasa ditinggalkan oleh San Ha dan Hae Jun, sementara kedua anak laki-laki itu berjuang dengan perasaan romantis yang baru untuk Ju Won dan masalah keluarga mereka sendiri. Bisakah saudara kandung yang terpilih ini mengatasi perasaan mereka satu sama lain, dan akankah romansa terbentuk di antara mereka?
-<br>
-**_Rating_** : 8.6⭐ <br>
-**_Network_** : TVING
+> **_Sinopsis_** : Meskipun tidak memiliki hubungan darah, Kim San Ha, Yun Ju Won, dan Kang Hae Jun memiliki ikatan yang erat satu sama lain. Ketiganya menghabiskan masa remaja mereka dengan dibesarkan oleh ayah Ju Won, Jeong Jae, dan ayah San Ha, Dae Uk, yang berusaha sebaik mungkin untuk memberi mereka masa kecil yang bahagia saat mereka pulih dari trauma masa lalu. Namun, setelah mencapai usia dewasa, San Ha dan Hae Jun mencari keluarga kandung mereka, meninggalkan Ju Won. Sepuluh tahun kemudian, kelima anggota keluarga yang mereka temukan bersatu kembali, tetapi keadaan tidak lagi sama seperti dulu. Ju Won menyimpan dendam setelah merasa ditinggalkan oleh San Ha dan Hae Jun, sementara kedua anak laki-laki itu berjuang dengan perasaan romantis yang baru untuk Ju Won dan masalah keluarga mereka sendiri. Bisakah saudara kandung yang terpilih ini mengatasi perasaan mereka satu sama lain, dan akankah romansa terbentuk di antara mereka?
+> <br> >**_Rating_** : 8.6⭐ <br> >**_Network_** : TVING
 
 ## ⬇ Download URL
 
