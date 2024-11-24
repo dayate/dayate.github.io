@@ -10,16 +10,14 @@
 
 Jika pixeldrain sudah mencapai limit download maka gunakan alternatif url dibawah ini. Untuk cara menggunakannya tinggal mengganti <b>CODE-FILE</b> dengan kode file yang terdapat pada baris akhir url yang sudah mencapai limit.
 
-| URL                                                         |
-| ----------------------------------------------------------- |
-| https://cdn.pd1.workers.dev/api/file/CODE-FILE              |
-| https://cdn.pd6.workers.dev/api/file/CODE-FILE              |
-| https://cdn.pd7.workers.dev/api/file/CODE-FILE              |
-| https://cdn.pd8.workers.dev/api/file/CODE-FILE              |
-| https://cdn.pd10.workers.dev/api/file/CODE-FILE             |
-| https://cdn.pd3-gamedriveorg.workers.dev/api/file/CODE-FILE |
-| https://cdn.pd5-gamedriveorg.workers.dev/api/file/CODE-FILE |
-| https://cdn.pd9-gamedriveorg.workers.dev/api/file/CODE-FILE |
+1. https://cdn.pd1.workers.dev/api/file/CODE-FILE
+2. https://cdn.pd6.workers.dev/api/file/CODE-FILE
+3. https://cdn.pd7.workers.dev/api/file/CODE-FILE
+4. https://cdn.pd8.workers.dev/api/file/CODE-FILE
+5. https://cdn.pd10.workers.dev/api/file/CODE-FILE
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/CODE-FILE
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/CODE-FILE
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/CODE-FILE
 
 # #️⃣ Contoh
 
@@ -155,7 +153,7 @@ Jika pixeldrain sudah mencapai limit download maka gunakan alternatif url dibawa
 | :----------- | :---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | **Sinopsis** | Meskipun tidak memiliki hubungan darah, Kim San Ha, Yun Ju Won, dan Kang Hae Jun memiliki ikatan yang erat satu sama lain. Ketiganya menghabiskan masa remaja mereka dengan dibesarkan oleh ayah Ju Won, Jeong Jae, dan ayah San Ha, Dae Uk, yang berusaha sebaik mungkin untuk memberi mereka masa kecil yang bahagia saat mereka pulih dari trauma masa lalu. Namun, setelah mencapai usia dewasa, San Ha dan Hae Jun mencari keluarga kandung mereka, meninggalkan Ju Won. Sepuluh tahun kemudian, kelima anggota keluarga yang mereka temukan bersatu kembali, tetapi keadaan tidak lagi sama seperti dulu. Ju Won menyimpan dendam setelah merasa ditinggalkan oleh San Ha dan Hae Jun, sementara kedua anak laki-laki itu berjuang dengan perasaan romantis yang baru untuk Ju Won dan masalah keluarga mereka sendiri. Bisakah saudara kandung yang terpilih ini mengatasi perasaan mereka satu sama lain, dan akankah romansa terbentuk di antara mereka? |
 | **Rating**   | 8.6⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                             |
-| **Network**  | TVING                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                             |
+| **Network**  | TVING \*\*\*\*                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    |
 
 ## ⬇ Download URL
 
