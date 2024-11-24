@@ -173,3 +173,44 @@ Jika pixeldrain sudah mencapai limit download maka gunakan alternatif url dibawa
 14. https://cdn.pd6.workers.dev/api/file/DcR95jzx
 15. https://cdn.pd7.workers.dev/api/file/CODE-FILE
 16. https://cdn.pd8.workers.dev/api/file/CODE-FILE
+
+# 5️⃣ <a href="https://mydramalist.com/42107-the-young-lady-of-the-general-s-house">General's Lady (2020)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/q3bx8_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                               |
+| :----------- | :--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Seorang jenderal terkenal dan putri seorang bangsawan saling berpegangan tangan untuk menghabiskan hidup bersama sambil melindungi apa yang berharga bagi mereka. Shen Jin tumbuh sebagai putri selir keluarga kerajaan yang tidak disukai. Kaisar memutuskan untuk mengatur pernikahan untuknya, memilih Jenderal Chu Xiu Ming, yang mempertahankan perbatasan. Meskipun dia jatuh cinta dengan pasangan pilihannya, dia merasa sulit untuk menemukan tempatnya di rumah barunya. |
+| **Rating**   | 8.2⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                              |
+| **Network**  | Youku                                                                                                                                                                                                                                                                                                                                                                                                                                                                              |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/Aa2LDkZ5
+2. https://cdn.pd6.workers.dev/api/file/4ZmRbwiw
+3. https://cdn.pd7.workers.dev/api/file/TewFAQK9
+4. https://cdn.pd8.workers.dev/api/file/hm8ZDdaC
+5. https://cdn.pd10.workers.dev/api/file/4FS1LFYf
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/3zTBmYpF
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/oPK9X7cZ
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/YscndEvZ
+9. https://cdn.pd1.workers.dev/api/file/rZYrG2GP
+10. https://cdn.pd6.workers.dev/api/file/kbaKRZnB
+11. https://cdn.pd7.workers.dev/api/file/PYBLkGP6
+12. https://cdn.pd8.workers.dev/api/file/dTJqhyHo
+13. https://cdn.pd10.workers.dev/api/file/NxAShGJ5
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/iuWeDkt2
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/2awPouKg
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/MpcroH7F
+17. https://cdn.pd1.workers.dev/api/file/3LJvx2By
+18. https://cdn.pd6.workers.dev/api/file/oPekHZgG
+19. https://cdn.pd7.workers.dev/api/file/2BdF39wS
+20. https://cdn.pd8.workers.dev/api/file/3eVep9ZE
+21. https://cdn.pd10.workers.dev/api/file/MyMoNa89
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/JxuGv97T
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/PXAQMpR9
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/T7vdZtuw
+25. https://cdn.pd1.workers.dev/api/file/ijCTCWz4
+26. https://cdn.pd6.workers.dev/api/file/R4ENGZPU
+27. https://cdn.pd7.workers.dev/api/file/148i8wK1
+28. https://cdn.pd8.workers.dev/api/file/uELMWcDn
+29. https://cdn.pd10.workers.dev/api/file/xKCzBC85
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/4jmiYonw
