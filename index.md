@@ -273,3 +273,48 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 28. https://cdn.pd8.workers.dev/api/file/pXDHuhvj
 29. https://cdn.pd10.workers.dev/api/file/tp7UFHhR
 30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/a8W9qmH9
+
+# 8️⃣ <a href="https://mydramalist.com/757543-smile-code">Smile Code (2024)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/Bdg5AA_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                    |
+| :----------- | :--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Ini bercerita tentang aktris talk show paruh waktu yang turun-masuk dan seorang anggota audiens pria yang menyendiri menderita alexithymia – juga dikenal sebagai “kebutaan emosional” – yang dekat satu sama lain dan saling menyembuhkan. Sebuah kisah cinta seorang wanita yang lucu sampai akhir dan seorang pria yang tidak bisa tertawa, kontes cinta dimulai. Namun, apa yang menghubungkan romansa bukan hanya emosi antara pria dan wanita, tetapi juga pemuda perkotaan yang berjuang yang tinggal di Shanghai. Di dalam dan di luar panggung dalam drama, keluhan pedas namun observasional mengenai titik-titik rasa sakit kehidupan, dan ejekan lucunya ringan, tetapi juga penuh dengan optimisme dan keterbukaan pikiran. |
+| **Rating**   | 7.8 ⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                   |
+| **Network**  | WeTV                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                     |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/y
+2. https://cdn.pd6.workers.dev/api/file/yfjjZhV7
+3. https://cdn.pd7.workers.dev/api/file/YJhFCtQQ
+4. https://cdn.pd8.workers.dev/api/file/hGqj1KL1
+5. https://cdn.pd10.workers.dev/api/file/MHKrXRto
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/zEgVi2ET
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/ULqdNdo4
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/yJqxvebW
+9. https://cdn.pd1.workers.dev/api/file/44iayEVQ
+10. https://cdn.pd6.workers.dev/api/file/FeSjA2rk
+11. https://cdn.pd7.workers.dev/api/file/DYFuTSUv
+12. https://cdn.pd8.workers.dev/api/file/YZudP3xb
+13. https://cdn.pd10.workers.dev/api/file/xrEKq8Pr
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/Za9JdGGx
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/AydWaDBy
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/Ahec3Dzv
+17. https://cdn.pd1.workers.dev/api/file/YEFSwVsn
+18. https://cdn.pd6.workers.dev/api/file/MhaYZ9bN
+19. https://cdn.pd7.workers.dev/api/file/c7dgL4iD
+20. https://cdn.pd8.workers.dev/api/file/c9tE7ruD
+21. https://cdn.pd10.workers.dev/api/file/uQQvELhA
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/2LUeumod
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/eWw4U87W
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/eUEfcyNe
+25. https://cdn.pd1.workers.dev/api/file/AHpo1jKG
+26. https://cdn.pd6.workers.dev/api/file/sySjKWeB
+27. https://cdn.pd7.workers.dev/api/file/ipHpozmQ
+28. https://cdn.pd8.workers.dev/api/file/njFphXir
+29. https://cdn.pd10.workers.dev/api/file/NXpyVkwn
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/Gy7kpo2A
+31. https://cdn.pd7.workers.dev/api/file/bvRjSz73
+32. https://cdn.pd8.workers.dev/api/file/6hqMryuZ
+33. https://cdn.pd10.workers.dev/api/file/VHchzLzY
+34. https://cdn.pd3-gamedriveorg.workers.dev/api/file/e2aDoBUB
