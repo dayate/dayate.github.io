@@ -317,4 +317,4 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 31. https://cdn.pd7.workers.dev/api/file/bvRjSz73
 32. https://cdn.pd8.workers.dev/api/file/6hqMryuZ
 33. https://cdn.pd10.workers.dev/api/file/VHchzLzY
-34. https://cdn.pd3-gamedriveorg.workers.dev/api/file/e2aDoBUB
+34. https://cdn.pd3-gamedriveorg.workers.dev/api/file/GFjZbXNk
