@@ -318,3 +318,127 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 32. https://cdn.pd8.workers.dev/api/file/6hqMryuZ
 33. https://cdn.pd10.workers.dev/api/file/VHchzLzY
 34. https://cdn.pd3-gamedriveorg.workers.dev/api/file/GFjZbXNk
+
+# 9️⃣ <a href="https://mydramalist.com/756431-si-cang-lang-man">You Are My Secret (2024)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/jQgpDv_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                         |
+| :----------- | :---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Manajer lobi Tu Xiao Ning sedang dalam masa percobaan di Menara Huayuan, sementara Ji Yu Heng, seorang bintang yang sedang naik daun di lantai 17th, berbagi mimpinya tentang pernikahan. Setelah teman-teman masa kecil, jalan mereka menyeberang lagi sebagai Yu Heng menjadi bos Xiao Ning. Bagi Xiao Ning, Yu Heng adalah mitra ideal; untuk Yu Heng, Xiao Ning adalah pilihannya yang ditakdirkan. Terlepas dari tantangan di tempat kerja dan peran baru mereka sebagai kolega dan pengantin baru, mereka menavigasi kompleksitas cinta, pernikahan, dan ambisi, menemukan kembali makna hidup bersama dalam prosesnya. |
+| **Rating**   | 8.2 ⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        |
+| **Network**  | MGTV                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/jwX2T7qv
+2. https://cdn.pd6.workers.dev/api/file/WFoqeynN
+3. https://cdn.pd7.workers.dev/api/file/LgT2Pvtj
+4. https://cdn.pd8.workers.dev/api/file/mCb1qj2t
+5. https://cdn.pd10.workers.dev/api/file/adXxDVxF
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/GwHeYtym
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/JjpsqRtS
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/q6sBiJrz
+9. https://cdn.pd1.workers.dev/api/file/s6c4RPEC
+10. https://cdn.pd6.workers.dev/api/file/joTnhxTp
+11. https://cdn.pd7.workers.dev/api/file/VjJVKQ82
+12. https://cdn.pd8.workers.dev/api/file/vzKrtz4u
+13. https://cdn.pd10.workers.dev/api/file/3jZjWRBP
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/3HhrhyQA
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/PJ7nrS2h
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/3xtYF6mF
+17. https://cdn.pd1.workers.dev/api/file/us9MCb87
+18. https://cdn.pd6.workers.dev/api/file/qpYP3wv2
+19. https://cdn.pd7.workers.dev/api/file/XtXtQEwK
+20. https://cdn.pd8.workers.dev/api/file/fGYv2L1y
+21. https://cdn.pd10.workers.dev/api/file/ycPq1cCo
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/4q9dQiPN
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/jF8x85tJ
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/7DmbQnZ7
+25. https://cdn.pd1.workers.dev/api/file/bpLMYHkD
+26. https://cdn.pd6.workers.dev/api/file/ZynNiJrQ
+27. https://cdn.pd7.workers.dev/api/file/wNSKBBNf
+28. https://cdn.pd8.workers.dev/api/file/RWcgFfgv
+29. https://cdn.pd10.workers.dev/api/file/WX6HWs1i
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/3FcmVYoQ
+31. https://cdn.pd7.workers.dev/api/file/HC3hsFnW
+32. https://cdn.pd8.workers.dev/api/file/frEcwkgg
+33. https://cdn.pd10.workers.dev/api/file/9dQziaDU
+
+# 1️⃣0️⃣ <a href="https://mydramalist.com/723145-the-love-you-give-me">The Love You Give Me (2023)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/2woeg2_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                |
+| :----------- | :--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Lima tahun yang lalu, seorang wanita muda bernama Min Hui secara tidak sengaja jatuh cinta pada seorang pria muda bernama Xin Qi. Tapi hal-hal di antara mereka rumit karena Min Hui berpura-pura menjadi teman masa kecil Xin Qi yang telah lama hilang dengan cara yang salah arah untuk membantu teman yang telah meninggal tiba-tiba. Selanjutnya, Xin Qi menderita kondisi jantung yang berbahaya dan berpotensi mengancam jiwa, dan Min Hui sekarang mati-matian jatuh cinta, tidak ingin melihatnya menderita. Itu tidak membantu hal-hal yang setiap kali dia mencoba untuk mengatakan yang sebenarnya, dia akan memotongnya, tidak percaya padanya, atau kondisi jantungnya akan kambuh. Ketika dia akhirnya mengetahui seluruh kebenaran, dia memutuskan semua hubungan dengannya. Sekarang, lima tahun kemudian, mereka bersatu kembali di sebuah acara bisnis dalam situasi yang paling tidak nyaman. Min Hui telah meningkat menjadi asisten R&D untuk salah satu direktur di sebuah perusahaan teknologi dan Xin Qi juga telah membuat nama untuk dirinya sendiri sebagai CEO sebuah perusahaan investasi. Memutuskan bahwa "nasib" telah membawa mereka kembali ke kontak karena suatu alasan, Xin Qi memutuskan untuk mengambil semua kemarahan sebelumnya dan pengkhianatan pada Min Hui. Tapi "nasib" juga mengungkapkan bahwa/itu Min Hui memiliki seorang putra, yang menderita kondisi jantung yang sama persis dengan Xin Qi membuatnya menyadari melalui serangkaian peristiwa bahwa dia adalah ayah - banyak untuk kesenangan anak laki-laki yang menggemaskan itu! Setelah beberapa percakapan hati ke hati, penjelasan, dan bahkan pengaturan hidup yang unik, dapatkah keduanya saling memaafkan dan diri mereka sendiri atas kesalahan yang mereka berdua buat di masa lalu dan menghidupkan kembali cinta mereka, sekarang sebagai keluarga yang sepenuhnya berkembang? |
+| **Rating**   | 8.4 ⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                               |
+| **Network**  | WeTV                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                 |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/3mBhfjJs
+2. https://cdn.pd6.workers.dev/api/file/93Byijg7
+3. https://cdn.pd7.workers.dev/api/file/MqJRcnoS
+4. https://cdn.pd8.workers.dev/api/file/fJpfetbF
+5. https://cdn.pd10.workers.dev/api/file/KaknsnUM
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/kEmSL4ud
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/ntz4Ty65
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/LGYjZjr4
+9. https://cdn.pd1.workers.dev/api/file/L8aV7Qqs
+10. https://cdn.pd6.workers.dev/api/file/YehB4JCT
+11. https://cdn.pd7.workers.dev/api/file/2eQ71Qkj
+12. https://cdn.pd8.workers.dev/api/file/FZytbptb
+13. https://cdn.pd10.workers.dev/api/file/xSoDbNHM
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/kb5ywBFE
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Kgn91Eqs
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/QCtapWs3
+17. https://cdn.pd1.workers.dev/api/file/GFRESPv3
+18. https://cdn.pd6.workers.dev/api/file/PQMbNB2p
+19. https://cdn.pd7.workers.dev/api/file/hecRTiLo
+20. https://cdn.pd8.workers.dev/api/file/E3K8pshw
+21. https://cdn.pd10.workers.dev/api/file/XdSofDiP
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/xJ8UuY3t
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/5krkZUgF
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/e7mBBjkC
+25. https://cdn.pd1.workers.dev/api/file/msjdUsnw
+26. https://cdn.pd6.workers.dev/api/file/TobUVqiK
+27. https://cdn.pd7.workers.dev/api/file/BLNFzyY6
+28. https://cdn.pd8.workers.dev/api/file/7b53XFMz
+
+# 1️⃣1️⃣ <a href="https://mydramalist.com/737525-derailment">Derailment (2023)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/2wOAoR_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                               |
+| :----------- | :-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Apakah Anda percaya bahwa ada banyak alam semesta paralel yang persis seperti dunia tempat Anda tinggal? Jiang Xiao Yuan menemukan dirinya berjuang dengan identitasnya saat ia melakukan perjalanan melintasi alam semesta paralel yang sepertinya tidak pernah berpotongan. Di dunia aslinya, dia adalah seorang putri kaya yang tak terkalahkan, tetapi di tempat lain, dia menjadi seorang gadis pekerja biasa yang sama sekali tidak memiliki apa-apa. Sepanjang jalan, dia bertemu dengan Qi Lian yang misterius, dan bersama-sama, mereka mencari kebenaran yang melibatkan misteri di sekitarnya. Dilucuti dari kekayaan, latar belakang keluarga, penampilan, dan pendidikan, Jiang Xiao Yuan menetapkan dirinya dalam perjalanan untuk menemukan potongan-potongan identitas "nyata" nya. |
+| **Rating**   | 7.8 ⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              |
+| **Network**  | Youku, Netfilx                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/FykPFUPq
+2. https://cdn.pd6.workers.dev/api/file/VNzyEqGa
+3. https://cdn.pd7.workers.dev/api/file/AHTMZhhV
+4. https://cdn.pd8.workers.dev/api/file/7Q62QPZ5
+5. https://cdn.pd10.workers.dev/api/file/VaTpw9mk
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/xkEQ8pyD
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Ezo8AmPL
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/RYKBhjgo
+9. https://cdn.pd1.workers.dev/api/file/cg7TCDUP
+10. https://cdn.pd6.workers.dev/api/file/f7AbSuyr
+11. https://cdn.pd7.workers.dev/api/file/pL2KZimW
+12. https://cdn.pd8.workers.dev/api/file/s3wM86ow
+13. https://cdn.pd10.workers.dev/api/file/c3oGs6XZ
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/hxw2CWs4
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/e4M3twTA
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/EMEav256
+17. https://cdn.pd1.workers.dev/api/file/H4dGzJQM
+18. https://cdn.pd6.workers.dev/api/file/whWNX4FU
+19. https://cdn.pd7.workers.dev/api/file/FtRJJW5T
+20. https://cdn.pd8.workers.dev/api/file/XtoSExLf
+21. https://cdn.pd10.workers.dev/api/file/9npqHmWK
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/9Ja6sGGu
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/8P2ixgUx
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/QBj4z7rC
+25. https://cdn.pd1.workers.dev/api/file/vDcUvk19
+26. https://cdn.pd6.workers.dev/api/file/cb18iGUH
+27. https://cdn.pd7.workers.dev/api/file/dP8ATFT4
+28. https://cdn.pd8.workers.dev/api/file/vVFHJMBR
+29. https://cdn.pd10.workers.dev/api/file/QanYB9eG
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/9B7MdXme
