@@ -442,3 +442,33 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 28. https://cdn.pd8.workers.dev/api/file/vVFHJMBR
 29. https://cdn.pd10.workers.dev/api/file/QanYB9eG
 30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/9B7MdXme
+
+##
+
+1. https://cdn.pd1.workers.dev/api/file/mvpTM1Fu
+2. https://cdn.pd6.workers.dev/api/file/JyWib3yn
+3. https://cdn.pd7.workers.dev/api/file/mZAvaKwq
+4. https://cdn.pd8.workers.dev/api/file/82BR6fp8
+5. https://cdn.pd10.workers.dev/api/file/D1V7AiCp
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/HPi1a6UG
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Zzu3DfXz
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/WRpJzNgr
+9. https://cdn.pd1.workers.dev/api/file/teFMdbcE
+10. https://cdn.pd6.workers.dev/api/file/sGmHMEXi
+11. https://cdn.pd7.workers.dev/api/file/YQ6JHC5H
+12. https://cdn.pd8.workers.dev/api/file/VeV4xC81
+13. https://cdn.pd10.workers.dev/api/file/VPsMdgSi
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/iw8ELnHH
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/4sr8FWuh
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/PYEQFxJA
+17. https://cdn.pd1.workers.dev/api/file/yP6rPPUT
+18. https://cdn.pd6.workers.dev/api/file/XBnRrV45
+19. https://cdn.pd7.workers.dev/api/file/J83VAx9N
+20. https://cdn.pd8.workers.dev/api/file/fWQZ7aBZ
+21. https://cdn.pd10.workers.dev/api/file/9feRn3JZ
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/SVxv4Nk3
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/JD3RSqut
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/hfGTQrbV
+25. https://cdn.pd1.workers.dev/api/file/aGWMG4JS
+26. https://cdn.pd6.workers.dev/api/file/KXfBFQs1
+27. https://cdn.pd6.workers.dev/api/file/ALtSHU68
