@@ -443,32 +443,45 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 29. https://cdn.pd10.workers.dev/api/file/QanYB9eG
 30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/9B7MdXme
 
-##
+# 1️⃣2️⃣ <a href="https://mydramalist.com/62337-you-are-my-glory">You Are My Glory (2021)</a>
 
-1. https://cdn.pd1.workers.dev/api/file/mvpTM1Fu
-2. https://cdn.pd6.workers.dev/api/file/JyWib3yn
-3. https://cdn.pd7.workers.dev/api/file/mZAvaKwq
-4. https://cdn.pd8.workers.dev/api/file/82BR6fp8
-5. https://cdn.pd10.workers.dev/api/file/D1V7AiCp
-6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/HPi1a6UG
-7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Zzu3DfXz
-8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/WRpJzNgr
-9. https://cdn.pd1.workers.dev/api/file/teFMdbcE
-10. https://cdn.pd6.workers.dev/api/file/sGmHMEXi
-11. https://cdn.pd7.workers.dev/api/file/YQ6JHC5H
-12. https://cdn.pd8.workers.dev/api/file/VeV4xC81
-13. https://cdn.pd10.workers.dev/api/file/VPsMdgSi
-14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/iw8ELnHH
-15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/4sr8FWuh
-16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/PYEQFxJA
-17. https://cdn.pd1.workers.dev/api/file/yP6rPPUT
-18. https://cdn.pd6.workers.dev/api/file/XBnRrV45
-19. https://cdn.pd7.workers.dev/api/file/J83VAx9N
-20. https://cdn.pd8.workers.dev/api/file/fWQZ7aBZ
-21. https://cdn.pd10.workers.dev/api/file/9feRn3JZ
-22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/SVxv4Nk3
-23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/JD3RSqut
-24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/hfGTQrbV
-25. https://cdn.pd1.workers.dev/api/file/aGWMG4JS
-26. https://cdn.pd6.workers.dev/api/file/KXfBFQs1
-27. https://cdn.pd6.workers.dev/api/file/ALtSHU68
+| **Image**    | <img src="https://i.mydramalist.com/jJVmO_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                       |
+| :----------- | :--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Qiao Jing Jing, seorang selebriti terkenal, menemukan dirinya dalam air panas ketika sebuah video yang bocor dari keterampilan bermainnya yang mengerikan mengancam kesepakatan dukungannya. Untuk menyelamatkan reputasinya, dia terjun ke kompetisi game dan memutuskan untuk menghabiskan waktu luangnya menjadi lebih baik di permainan. Hal ini membuatnya berhubungan kembali dengan naksir sekolah menengah lamanya, Yu Tu, yang sekarang menjadi insinyur kedirgantaraan yang brilian dan seorang profesional game. Ketika dia menjadi pelatihnya, keduanya mulai terikat pada hasrat bersama mereka, saling membantu bersinar di sepanjang jalan. |
+| **Rating**   | 8.7 ⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                     |
+| **Network**  | WeTV                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                       |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/XiWw7XmC
+2. https://cdn.pd6.workers.dev/api/file/x84UsmN7
+3. https://cdn.pd7.workers.dev/api/file/2WstVtPb
+4. https://cdn.pd8.workers.dev/api/file/CcKAcaG3
+5. https://cdn.pd10.workers.dev/api/file/UCtvybpv
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/Gqt4nTxM
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/rUpwqLoA
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/jHSUm8Ck
+9. https://cdn.pd1.workers.dev/api/file/CJpGWKpj
+10. https://cdn.pd6.workers.dev/api/file/jVVWisqt
+11. https://cdn.pd7.workers.dev/api/file/xkbyjwzj
+12. https://cdn.pd8.workers.dev/api/file/Wvxw9Dh5
+13. https://cdn.pd10.workers.dev/api/file/tiNPzVTR
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/S3JFhxSL
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/DkmPrSiL
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/3mg1bcQb
+17. https://cdn.pd1.workers.dev/api/file/GE8n6Cm9
+18. https://cdn.pd6.workers.dev/api/file/HUp9EGGY
+19. https://cdn.pd7.workers.dev/api/file/vLnAFWw9
+20. https://cdn.pd9-gamedriveorg.workers.dev/api/file/8d8bv51R
+21. https://cdn.pd10.workers.dev/api/file/e5zzATso
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/HBzWBfhC
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/ZtqxoyKH
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/pyVwJAw3
+25. https://cdn.pd1.workers.dev/api/file/65aTWQjo
+26. https://cdn.pd6.workers.dev/api/file/5dajB4Hh
+27. https://cdn.pd7.workers.dev/api/file/XmTeE2iX
+28. https://cdn.pd8.workers.dev/api/file/eyG7xRHT
+29. https://cdn.pd10.workers.dev/api/file/JxWLGiq6
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/qZ1BqFVp
+31. https://cdn.pd3-gamedriveorg.workers.dev/api/file/xAQ3LBQV
+32. https://cdn.pd3-gamedriveorg.workers.dev/api/file/5ptoNgT8

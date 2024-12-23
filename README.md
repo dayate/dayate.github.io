@@ -214,3 +214,147 @@ Jika pixeldrain sudah mencapai limit download maka gunakan alternatif url dibawa
 28. https://cdn.pd8.workers.dev/api/file/uELMWcDn
 29. https://cdn.pd10.workers.dev/api/file/xKCzBC85
 30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/4jmiYonw
+
+##
+
+1. https://cdn.pd1.workers.dev/api/file/mvpTM1Fu
+2. https://cdn.pd6.workers.dev/api/file/JyWib3yn
+3. https://cdn.pd7.workers.dev/api/file/mZAvaKwq
+4. https://cdn.pd8.workers.dev/api/file/82BR6fp8
+5. https://cdn.pd10.workers.dev/api/file/D1V7AiCp
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/HPi1a6UG
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Zzu3DfXz
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/WRpJzNgr
+9. https://cdn.pd1.workers.dev/api/file/teFMdbcE
+10. https://cdn.pd6.workers.dev/api/file/sGmHMEXi
+11. https://cdn.pd7.workers.dev/api/file/YQ6JHC5H
+12. https://cdn.pd8.workers.dev/api/file/VeV4xC81
+13. https://cdn.pd10.workers.dev/api/file/VPsMdgSi
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/iw8ELnHH
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/4sr8FWuh
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/PYEQFxJA
+17. https://cdn.pd1.workers.dev/api/file/yP6rPPUT
+18. https://cdn.pd6.workers.dev/api/file/XBnRrV45
+19. https://cdn.pd7.workers.dev/api/file/J83VAx9N
+20. https://cdn.pd8.workers.dev/api/file/fWQZ7aBZ
+21. https://cdn.pd10.workers.dev/api/file/9feRn3JZ
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/SVxv4Nk3
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/JD3RSqut
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/hfGTQrbV
+25. https://cdn.pd1.workers.dev/api/file/aGWMG4JS
+26. https://cdn.pd6.workers.dev/api/file/KXfBFQs1
+27. https://cdn.pd6.workers.dev/api/file/ALtSHU68
+
+28. https://cdn.pd1.workers.dev/api/file/2VNpGkvg
+29. https://cdn.pd6.workers.dev/api/file/MpmrMFoT
+30. https://cdn.pd7.workers.dev/api/file/DVX2yXyx
+31. https://cdn.pd8.workers.dev/api/file/vFWgGBZz
+32. https://cdn.pd10.workers.dev/api/file/kCYd8Bpd
+33. https://cdn.pd3-gamedriveorg.workers.dev/api/file/hd1FcBGS
+34. https://cdn.pd5-gamedriveorg.workers.dev/api/file/2T2v5YNw
+35. https://cdn.pd9-gamedriveorg.workers.dev/api/file/oBUxLq4M
+36. https://cdn.pd1.workers.dev/api/file/bmtUeuqC
+37. https://cdn.pd6.workers.dev/api/file/HrLyacv1
+38. https://cdn.pd7.workers.dev/api/file/WnrvS8ZV
+39. https://cdn.pd8.workers.dev/api/file/o5Pt2SEV
+
+## Welcome to samdal-ri
+
+1. https://cdn.pd1.workers.dev/api/file/wxS7Dmnp
+2. https://cdn.pd6.workers.dev/api/file/B97VhTwS
+3. https://cdn.pd7.workers.dev/api/file/S3dwTQTS
+4. https://cdn.pd8.workers.dev/api/file/RgA7hZjP
+5. https://cdn.pd10.workers.dev/api/file/bz9vfqFJ
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/3iHU1wcu
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/pZeEq5Pk
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/sXKHYzMx
+9. https://cdn.pd1.workers.dev/api/file/xWhYpvG2
+10. https://cdn.pd6.workers.dev/api/file/t9DyKeqS
+11. https://cdn.pd7.workers.dev/api/file/V7aGqSDh
+12. https://cdn.pd8.workers.dev/api/file/1pcZp5W2
+13. https://cdn.pd10.workers.dev/api/file/p8TWCnry
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/GA9LzieX
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/XQ1K9kaU
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/hf22ZgpP
+
+## brocade odyssey
+
+1. https://cdn.pd1.workers.dev/api/file/S2VEVYnL
+2. https://cdn.pd6.workers.dev/api/file/ZMo9v7SV
+3. https://cdn.pd7.workers.dev/api/file/CYbkUqJJ
+4. https://cdn.pd8.workers.dev/api/file/JPZZ2S5y
+5. https://cdn.pd10.workers.dev/api/file/g8xUoxpN
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/dYyxLN3C
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/aH6bcwn6
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/rKmseQek
+9. https://cdn.pd1.workers.dev/api/file/DLsbgMz3
+10. https://cdn.pd6.workers.dev/api/file/7NtrpkxS
+11. https://cdn.pd7.workers.dev/api/file/UnRUdRxY
+12. https://cdn.pd8.workers.dev/api/file/c27yGkoB
+13. https://cdn.pd10.workers.dev/api/file/UZUozh3Q
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/VM3Fj8AQ
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/SjLn9Tsm
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/XSAVNnsB
+17. https://cdn.pd1.workers.dev/api/file/uphNJQ3D
+18. https://cdn.pd6.workers.dev/api/file/s9cd4Szd
+19. https://cdn.pd7.workers.dev/api/file/PWqkK4jD
+20. https://cdn.pd8.workers.dev/api/file/DiCibkAS
+21. https://cdn.pd10.workers.dev/api/file/neP7zBML
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/HhbcBsq2
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Sx9S25XD
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/coifcyjL
+25. https://cdn.pd1.workers.dev/api/file/vafpjixM
+26. https://cdn.pd6.workers.dev/api/file/iPTzyib1
+27. https://cdn.pd7.workers.dev/api/file/wmRNLBp3
+28. https://cdn.pd8.workers.dev/api/file/fEhktv2Z
+29. https://cdn.pd10.workers.dev/api/file/kuPEAG9s
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/SG2QtApA
+31. https://cdn.pd5-gamedriveorg.workers.dev/api/file/k3QAau4X
+32. https://cdn.pd9-gamedriveorg.workers.dev/api/file/uZbXCzmo
+33. https://cdn.pd1.workers.dev/api/file/KbshRzHM
+34. https://cdn.pd6.workers.dev/api/file/2ZofGo2F
+35. https://cdn.pd7.workers.dev/api/file/LvQMUuhx
+36. https://cdn.pd8.workers.dev/api/file/NQTKr6Tg
+37. https://cdn.pd10.workers.dev/api/file/uqnTRqo6
+38. https://cdn.pd3-gamedriveorg.workers.dev/api/file/khjNugwB
+39. https://cdn.pd5-gamedriveorg.workers.dev/api/file/72wsrDHP
+40. https://cdn.pd9-gamedriveorg.workers.dev/api/file/kX4xA6Y6
+
+---
+
+## Blossom
+
+1. https://cdn.pd1.workers.dev/api/file/6m2sMGio
+2. https://cdn.pd6.workers.dev/api/file/BCdm2Muz
+3. https://cdn.pd7.workers.dev/api/file/k1gK2VKq
+4. https://cdn.pd8.workers.dev/api/file/nvyHQdbv
+5. https://cdn.pd10.workers.dev/api/file/byMAhrsZ
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/QVJ2bToN
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/SQhEwLnr
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/fohazLDf
+9. https://cdn.pd1.workers.dev/api/file/46u96eKQ
+10. https://cdn.pd6.workers.dev/api/file/C7TCt25H
+11. https://cdn.pd7.workers.dev/api/file/Kb3ZhV73
+12. https://cdn.pd8.workers.dev/api/file/MT3oaeDn
+13. https://cdn.pd10.workers.dev/api/file/524PVGXe
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/54kbHbZn
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/eNuZrrWE
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/AUnNcJya
+17. https://cdn.pd1.workers.dev/api/file/XEd34kUG
+18. https://cdn.pd6.workers.dev/api/file/ju9GXA4b
+19. https://cdn.pd7.workers.dev/api/file/nwmb2WXj
+20. https://cdn.pd8.workers.dev/api/file/uu63sMnN
+21. https://cdn.pd10.workers.dev/api/file/cuc77rXF
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/mJX1f6sQ
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/B4W9Bvim
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/PupfaA16
+25. https://cdn.pd1.workers.dev/api/file/11ehDBVL
+26. https://cdn.pd6.workers.dev/api/file/goTm5Nbs
+27. https://cdn.pd7.workers.dev/api/file/HwewioEE
+28. https://cdn.pd8.workers.dev/api/file/Njik9gjW
+29. https://cdn.pd10.workers.dev/api/file/EDRBsUvw
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/R8gReuEm
+31. https://cdn.pd5-gamedriveorg.workers.dev/api/file/TS9aD97U
+32. https://cdn.pd9-gamedriveorg.workers.dev/api/file/hTL2XYNL
+33. https://cdn.pd1.workers.dev/api/file/2SSTj3Li
+34. https://cdn.pd6.workers.dev/api/file/AUKLZ45C
