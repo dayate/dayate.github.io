@@ -1438,3 +1438,52 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/7FjVFGbv
 31. https://cdn.pd5-gamedriveorg.workers.dev/api/file/dKVoMR4j
 32. https://cdn.pd9-gamedriveorg.workers.dev/api/file/v5Qf72dN
+
+---
+
+# 3️⃣7️⃣ <a href="https://mydramalist.com/755301-the-story-of-mystics">Fangs of Fortune (2024)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/Bd5Z16_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                           |
+| :----------- | :---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Selama era Zhenyuan, kematian tak disengaja dewi Bai Ze, yang memerintah alam manusia dan iblis, menyebabkan hilangnya Ordo Bai Ze, yang menyebabkan kekacauan dari binatang iblis yang merajalela. Sebagai tanggapan, pemimpin iblis, Zhu Yan, yang menyamar sebagai Zhao Yuan Zhou, mengajukan diri untuk membantu membentuk biro pemburu iblis. Wen Xiao, yang curiga terhadap Zhao Yuan Zhou, bergabung dengan biro tersebut bersama teman masa kecilnya Zhuo Yi Chen, seorang detektif dan pendekar pedang yang terampil, pemanah yang menyendiri Pei Si Jing, dan dokter Bai Jiu yang pemalu. Bersama-sama, mereka menghadapi binatang iblis dari "The Classic of Mountains and Seas" dan mengungkap kebenaran di balik tindakan kekerasan mereka. Saat mereka menghadapi tanggung jawab besar dan kehilangan pribadi, akankah persahabatan dan cinta antara binatang iblis teratas dan sang dewi mengatasi tantangan yang mereka hadapi? |
+|              |
+| **Rating**   | 8.6⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                           |
+| **Network**  | iQIYI                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                           |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/sP7BPc9M
+2. https://cdn.pd6.workers.dev/api/file/d6TuM7h4
+3. https://cdn.pd7.workers.dev/api/file/L2L2Kfo9
+4. https://cdn.pd8.workers.dev/api/file/seEBse1F
+5. https://cdn.pd10.workers.dev/api/file/CParKgHR
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/iMLwejeg
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/ZXXzRejM
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/x9sckJZL
+9. https://cdn.pd1.workers.dev/api/file/wq6WX4G1
+10. https://cdn.pd6.workers.dev/api/file/1J6nopEX
+11. https://cdn.pd7.workers.dev/api/file/kKd5A1jc
+12. https://cdn.pd8.workers.dev/api/file/L9Fmeoqn
+13. https://cdn.pd10.workers.dev/api/file/edDHiKNQ
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/Qa6imw5W
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Jg38MsCM
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/v45m5NEX
+17. https://cdn.pd1.workers.dev/api/file/rt76FwPR
+18. https://cdn.pd6.workers.dev/api/file/d1JKNWU3
+19. https://cdn.pd7.workers.dev/api/file/mZuCehAT
+20. https://cdn.pd8.workers.dev/api/file/zVq69Ut8
+21. https://cdn.pd10.workers.dev/api/file/mEbfmCan
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/9ovMXWzW
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/SjUkZ9Be
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/p4VB5YxK
+25. https://cdn.pd1.workers.dev/api/file/j88nciXq
+26. https://cdn.pd6.workers.dev/api/file/uuV1mJ28
+27. https://cdn.pd7.workers.dev/api/file/gApeLcKd
+28. https://cdn.pd8.workers.dev/api/file/QySAMbmo
+29. https://cdn.pd10.workers.dev/api/file/8aYG6a1p
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/ffDn9Fia
+31. https://cdn.pd5-gamedriveorg.workers.dev/api/file/WmgZvRcf
+32. https://cdn.pd9-gamedriveorg.workers.dev/api/file/pQejc16t
+33. https://cdn.pd1.workers.dev/api/file/R5tm47rD
+34. https://cdn.pd6.workers.dev/api/file/PuoAzswj
+35. https://cdn.pd7.workers.dev/api/file/CpZfW7Vk
