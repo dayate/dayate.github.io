@@ -1487,3 +1487,53 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 33. https://cdn.pd1.workers.dev/api/file/R5tm47rD
 34. https://cdn.pd6.workers.dev/api/file/PuoAzswj
 35. https://cdn.pd7.workers.dev/api/file/CpZfW7Vk
+
+---
+
+# 3️⃣8️⃣ <a href="https://mydramalist.com/760155-perfect-match">Perfect Match (2025)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/NdN6XY_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                |
+| :----------- | :------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Selama Dinasti Song Utara di bawah Renzong, Nyonya Li, dari keluarga Luoyang yang kaya, pindah ke Bianjing bersama putri-putrinya, yang masing-masing memiliki kepribadian unik, untuk bersatu kembali dengan putri keduanya dan menyelesaikan masalah keluarga. Meskipun cantik dan berbakat, putri-putrinya berjuang dengan prospek pernikahan, yang mendorong Nyonya Li untuk mencari pelamar baru di Bianjing. Namun, perjalanan mereka menemui tantangan, termasuk kemunduran sosial dan kesulitan dalam berumah tangga. Akhirnya, melalui kegigihan dan liku-liku takdir, keluarga Li menemukan suami yang cocok untuk putri-putrinya, menciptakan komedi yang hidup tentang pernikahan di Dinasti Song Utara. |
+|              |
+| **Rating**   | 8.2⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                |
+| **Network**  | Netflix, MGTV                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/BVyEHHL4
+2. https://cdn.pd6.workers.dev/api/file/q1kEM4Kf
+3. https://cdn.pd7.workers.dev/api/file/miNFVMgF
+4. https://cdn.pd8.workers.dev/api/file/ei22AsSc
+5. https://cdn.pd10.workers.dev/api/file/UGQpaqon
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/Y4qbRVPK
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/JYwCyijC
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/2fw8x6Nb
+9. https://cdn.pd1.workers.dev/api/file/n1JVBSEg
+10. https://cdn.pd6.workers.dev/api/file/hb9UHZhD
+11. https://cdn.pd7.workers.dev/api/file/WCxDaTf4
+12. https://cdn.pd8.workers.dev/api/file/989hScB9
+13. https://cdn.pd10.workers.dev/api/file/svXKAJuF
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/7ZrABFvH
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/2F8oEujc
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/Ug3ypjy8
+17. https://cdn.pd1.workers.dev/api/file/cAVW8u8W
+18. https://cdn.pd6.workers.dev/api/file/UR6wnUaL
+19. https://cdn.pd7.workers.dev/api/file/rsSMhrzY
+20. https://cdn.pd8.workers.dev/api/file/CLSvMb33
+21. https://cdn.pd10.workers.dev/api/file/KapPPDRM
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/4af975kh
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/axYrwMUB
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/F4ccCpNx
+25. https://cdn.pd1.workers.dev/api/file/iDMxuuUo
+26. https://cdn.pd6.workers.dev/api/file/pFerwmoJ
+27. https://cdn.pd7.workers.dev/api/file/KPMK9qB3
+28. https://cdn.pd8.workers.dev/api/file/7T7aBc6c
+29. https://cdn.pd10.workers.dev/api/file/G9pBTGWM
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/GGRfoHMr
+31. https://cdn.pd5-gamedriveorg.workers.dev/api/file/DVh8ib7o
+32. https://cdn.pd9-gamedriveorg.workers.dev/api/file/saLCN15M
+33. https://cdn.pd1.workers.dev/api/file/8bUijCJe
+34. https://cdn.pd6.workers.dev/api/file/ZEMpS2aB
+35. https://cdn.pd7.workers.dev/api/file/aMu69jN2
+36. https://cdn.pd8.workers.dev/api/file/DpMiM9CL
