@@ -1537,3 +1537,44 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 34. https://cdn.pd6.workers.dev/api/file/ZEMpS2aB
 35. https://cdn.pd7.workers.dev/api/file/aMu69jN2
 36. https://cdn.pd8.workers.dev/api/file/DpMiM9CL
+
+---
+
+# 3️⃣9️⃣ <a href="https://mydramalist.com/743759-zai-ci-ren-sheng">Live or Love? (2025)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/mODWbP_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                       |
+| :----------- | :---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Rival Fang Li dan An Hang secara tidak sengaja terjebak di dunia virtual dan menjadi pasangan suami istri. Dengan misi sistem yang berlawanan, mereka harus mengalahkan satu sama lain untuk kembali ke dunia nyata. Saat mereka bertarung, mereka mulai jatuh cinta satu sama lain. Bisakah mereka menulis ulang aturan sistem dan menemukan jalan keluar? |
+|              |
+|              |
+| **Rating**   | 7.6⭐                                                                                                                                                                                                                                                                                                                                                       |
+| **Network**  | WeTV                                                                                                                                                                                                                                                                                                                                                        |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/jpfhpryC
+2. https://cdn.pd6.workers.dev/api/file/omtUDfQm
+3. https://cdn.pd7.workers.dev/api/file/Hf9vZqat
+4. https://cdn.pd8.workers.dev/api/file/WCHNpyxP
+5. https://cdn.pd10.workers.dev/api/file/Ghf7Xggn
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/SEHkiTGX
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/SVdUV4EB
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/sxFFti9m
+9. https://cdn.pd1.workers.dev/api/file/AskBeQjM
+10. https://cdn.pd6.workers.dev/api/file/LHdRcPPE
+11. https://cdn.pd7.workers.dev/api/file/GvzMjLNo
+12. https://cdn.pd8.workers.dev/api/file/6YzEnZnR
+13. https://cdn.pd10.workers.dev/api/file/kRfWJzLG
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/e6aXu4W8
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/zmariw35
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/SyzQtykE
+17. https://cdn.pd1.workers.dev/api/file/tR2ChT6X
+18. https://cdn.pd6.workers.dev/api/file/rF24umVK
+19. https://cdn.pd8.workers.dev/api/file/2WYCaxPd
+20. https://cdn.pd7.workers.dev/api/file/rGjxTy5x
+21. https://cdn.pd10.workers.dev/api/file/wf5yJmTo
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/5JpE8xtS
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/WNCVExvW
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/f2qkXnfx
+
+update
