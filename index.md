@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://mkvdrama.org/wp-content/uploads/2023/03/474a064744e1d9fe02e1124b2b071c70.png">
+  <img src="image.png">
    <br>
    <strong><i>Koleksi Link Download Drama from <a href="https://mkvdrama.org/">mkvdrama.org</a></i></strong>
    <br>
@@ -1576,5 +1576,3 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/5JpE8xtS
 23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/WNCVExvW
 24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/f2qkXnfx
-
-update
