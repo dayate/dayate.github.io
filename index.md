@@ -1614,3 +1614,104 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/7aW1jsSJ
 9. https://cdn.pd1.workers.dev/api/file/Wxx7PnSw
 10. https://cdn.pd6.workers.dev/api/file/1gPhKpfn
+
+---
+
+# 4️⃣2️⃣ <a href="https://mydramalist.com/30561-gank-your-heart">Gank Your Heart (2019)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/wK4jJc.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  |
+| :----------- | :---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Pertemuan pertama mereka adalah bencana, tetapi kisah cinta mereka berkembang dengan manis. Gamer e-sports Ji Xiang Kong terkenal, tampan, dan dikelilingi oleh para fangirl. Live streamer tsundere Qiu Ying bertemu dengannya di sebuah kompetisi internasional, berharap untuk mendongkrak popularitasnya, tanpa menyadari reputasinya yang ternoda. Alih-alih membantunya, hubungan mereka malah semakin merusaknya. Namun, ini berubah menjadi berkah saat Qiu Ying menemukan panggilan sejatinya dan mengungkap bahwa Ji Xiang Kong adalah seorang jenius yang disalahpahami. |
+| **Rating**   | 8.2⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                               |
+| **Network**  | iQIYI, MGTV, Viki                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                   |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/WYCnAdvm
+2. https://cdn.pd6.workers.dev/api/file/ubotHm8Q
+3. https://cdn.pd7.workers.dev/api/file/d7dqW1Fv
+4. https://cdn.pd8.workers.dev/api/file/HtNChLtg
+5. https://cdn.pd10.workers.dev/api/file/bwDPPVMK
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/C1VAZQfZ
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/qQydjA3o
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/4M49zQzT
+9. https://cdn.pd1.workers.dev/api/file/Pg9U1dTR
+10. https://cdn.pd6.workers.dev/api/file/2184uCgm
+11. https://cdn.pd7.workers.dev/api/file/ryFrdfQm
+12. https://cdn.pd8.workers.dev/api/file/FfpKot2Q
+13. https://cdn.pd10.workers.dev/api/file/x1PBXCPr
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/aTPu32Rq
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/E1cWLX8r
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/5YWKFKkS
+17. https://cdn.pd1.workers.dev/api/file/BkhJHLcV
+18. https://cdn.pd6.workers.dev/api/file/mnUYWPag
+19. https://cdn.pd7.workers.dev/api/file/q3jrqyGq
+20. https://cdn.pd8.workers.dev/api/file/esNBtmw8
+21. https://cdn.pd10.workers.dev/api/file/XkjNNLgk
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/Wk8nnrdS
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/c3fMCWyh
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/uFaQRGmP
+25. https://cdn.pd1.workers.dev/api/file/jukYPuUW
+26. https://cdn.pd6.workers.dev/api/file/w6E167C1
+27. https://cdn.pd7.workers.dev/api/file/PFNLA9E3
+28. https://cdn.pd8.workers.dev/api/file/e7LYcAF2
+29. https://cdn.pd10.workers.dev/api/file/jehfizvH
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/gGwht46r
+31. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Jm1mLNws
+32. https://cdn.pd9-gamedriveorg.workers.dev/api/file/fbS5MjdB
+33. https://mega.nz/file/IzF1wCJA#MHhJ4TH1kJUh73M5vbp9tzwb_vkcIrFqXDbWl_vqm8Y
+34. https://mega.nz/file/YndV1AaY#RUIjxms9qSztaxGKR0UgnQhv5g80Yffg0PmbmiuttNI
+35. https://cdn.pd7.workers.dev/api/file/6E4oFAF5
+
+---
+
+# 4️⃣3️⃣ <a href="https://mydramalist.com/755789-xian-tai-you-shu">Love of the Divine Tree (2025)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/RBJ3Wo_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                         |
+| :----------- | :------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
+| **Sinopsis** | Dua puluh tahun yang lalu, Mu Qing Ge, pemimpin Sekte Xishan, mengorbankan Inti Emas untuk menyegel Ling Quan pada muridnya Su Yi Shui untuk melindungi orang-orang dan mencegah kekacauan yang disebabkan oleh mata air spiritual makhluk-makhluk iblis. Tindakan Mu Qing Ge disalahpahami oleh dunia sebagai tindakan seorang pemimpin iblis, yang menyebabkan serangan gabungan oleh empat sekte utama. Su Yi Shui mengetahui kebenaran sebelum kematian Mu Qing Ge, dan setelah mengatasi bahaya yang tak terhitung jumlahnya, ia menemukan Pohon Reinkarnasi, mempersembahkan setengah dari Inti Emasnya untuk membantu Mu Qing Ge terlahir kembali. Dua puluh tahun kemudian, Mu Qing Ge terlahir kembali sebagai Xue Ran Ran. Su Yi Shui menerima Ran Ran yang lemah dan sekarat, bersumpah untuk melindunginya sepanjang hidupnya. Sekarang, dengan segel pada mata air spiritual yang kembali longgar, kultivator iblis Dun Tian berusaha menggunakan Ling Quan untuk menciptakan putra iblis, dengan maksud untuk menyakiti yang hidup. Mengingat instruksi Mu Qing Ge, Su Yi Shui mempertaruhkan nyawanya untuk menyegel Ling Quan kembali ke alam hantu. Su Yi Shui dijebak oleh Dun Tian saat menyegel mata air spiritual dan kehilangan ingatannya. Meskipun kehilangan ingatan, Su Yi Shui jatuh cinta pada Ran Ran sekali lagi. Bersama-sama, mereka menghadapi banyak kesulitan, yang akhirnya menggagalkan konspirasi Dun Tian, ​​melindungi orang-orang, dan membawa kejelasan bagi dunia. |
+| **Rating**   | 8.4⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                         |
+| **Network**  | iQIYI, WeTV                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                   |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/bMp4UwLN
+2. https://cdn.pd7.workers.dev/api/file/rgzvwCdG
+3. https://cdn.pd6.workers.dev/api/file/Ede75Gwk
+4. https://cdn.pd8.workers.dev/api/file/AupLmzxD
+5. https://cdn.pd10.workers.dev/api/file/pQhQce95
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/cx9ydHoM
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/6KdYakxv
+8. https://cdn.pd9-gamedriveorg.workers.dev/api/file/vXMV3E3g
+9. https://cdn.pd1.workers.dev/api/file/84SVnLcX
+10. https://cdn.pd6.workers.dev/api/file/eC7K2tao
+11. https://cdn.pd7.workers.dev/api/file/oUfRKrCA
+12. https://cdn.pd8.workers.dev/api/file/mP8GekW6
+13. https://cdn.pd10.workers.dev/api/file/jog4cMKA
+14. https://cdn.pd3-gamedriveorg.workers.dev/api/file/cWYy3TuT
+15. https://cdn.pd5-gamedriveorg.workers.dev/api/file/PXQx5UQg
+16. https://cdn.pd9-gamedriveorg.workers.dev/api/file/ndBVPEn7
+17. https://cdn.pd1.workers.dev/api/file/yjtbBqBC
+18. https://cdn.pd6.workers.dev/api/file/SL61WpUc
+19. https://cdn.pd7.workers.dev/api/file/oYDndRUr
+20. https://cdn.pd8.workers.dev/api/file/eS1eCs3w
+21. https://cdn.pd10.workers.dev/api/file/332yi6UB
+22. https://cdn.pd3-gamedriveorg.workers.dev/api/file/MERqxMaq
+23. https://cdn.pd5-gamedriveorg.workers.dev/api/file/s9UhmNse
+24. https://cdn.pd9-gamedriveorg.workers.dev/api/file/Wcf4C1ii
+25. https://cdn.pd1.workers.dev/api/file/RUYm8C25
+26. https://cdn.pd6.workers.dev/api/file/YFihqc8q
+27. https://cdn.pd7.workers.dev/api/file/iBNF31dJ
+28. https://cdn.pd8.workers.dev/api/file/BaXF2AYs
+29. https://cdn.pd10.workers.dev/api/file/xpXT5YTR
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/raa3vmNT
+31. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Z9Sce69K
+32. https://cdn.pd9-gamedriveorg.workers.dev/api/file/VYbek7mn
+33. https://cdn.pd1.workers.dev/api/file/6P61kbnW
+34. https://cdn.pd6.workers.dev/api/file/3GyRw5PJ
+35. https://cdn.pd7.workers.dev/api/file/8mv5HbuG
+36. https://cdn.pd8.workers.dev/api/file/KNr2XeLC
+37. https://cdn.pd10.workers.dev/api/file/rzGJG21D
+38. https://cdn.pd3-gamedriveorg.workers.dev/api/file/cYiHXcrC
+39. https://cdn.pd5-gamedriveorg.workers.dev/api/file/ZbGGQ6qo
+40. https://cdn.pd9-gamedriveorg.workers.dev/api/file/J6aNKSY3
