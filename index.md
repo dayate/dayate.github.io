@@ -1796,3 +1796,46 @@ Koleksi link drama menggunakan provider pixeldrain.com yang sudah dibypass secar
 22. https://cdn.pd5-gamedriveorg.workers.dev/api/file/Fqz8hxet
 23. https://cdn.pd9-gamedriveorg.workers.dev/api/file/SzsmhGCF
 24. https://cdn.pd1.workers.dev/api/file/KfFGV6sr
+
+---
+
+# 4️⃣6️⃣ <a href="https://mydramalist.com/772939-yu-ai-qian-jin">Rainkissed Fate (2025)</a>
+
+| **Image**    | <img src="https://i.mydramalist.com/KpE1LR_4c.jpg?v=1" height= "300">                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              |
+| :----------- | :--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| **Sinopsis** | Pewaris kaya Bu Yan dijebak dan menghabiskan malam yang penuh gairah dengan petinju He Yu Chen, lalu menghilang setelahnya. Enam tahun kemudian, dia kembali dengan sepasang anak kembar dan bertemu dengan He Yu Chen, yang telah putus asa setelah skandal pengaturan pertandingan. Karena membutuhkan darah tali pusat untuk putranya, Bu Yan memutuskan untuk menggunakan He Yu Chen, yang membuat mereka memasuki pernikahan kontrak yang berubah menjadi cinta sejati. Mereka kemudian mengungkap kebenaran gelap masa lalu mereka bersama-sama. |
+| **Rating**   | 7.8⭐                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                              |
+| **Network**  | WeTV                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                |
+
+## ⬇ Download URL
+
+1. https://cdn.pd1.workers.dev/api/file/F1j261q1
+2. https://cdn.pd7.workers.dev/api/file/y3f3gJUq
+3. https://cdn.pd6.workers.dev/api/file/QXHHtfFV
+4. https://cdn.pd8.workers.dev/api/file/gt6dKZGJ
+5. https://cdn.pd10.workers.dev/api/file/cthKjQyQ
+6. https://cdn.pd3-gamedriveorg.workers.dev/api/file/1YP4QQQu
+7. https://cdn.pd5-gamedriveorg.workers.dev/api/file/rCaFXChM
+8. https://cdn.pd6.workers.dev/api/file/qYC1TXuT
+9. https://cdn.pd7.workers.dev/api/file/gS5bXnZC
+10. https://cdn.pd8.workers.dev/api/file/Kw8HMKLZ
+11. https://cdn.pd10.workers.dev/api/file/Zx3fqstc
+12. https://cdn.pd10.workers.dev/api/file/wJMpWW1r
+13. https://cdn.pd3-gamedriveorg.workers.dev/api/file/R3vUY7Md
+14. https://cdn.pd5-gamedriveorg.workers.dev/api/file/5Pk535P9
+15. https://cdn.pd9-gamedriveorg.workers.dev/api/file/xVEdTUo6
+16. https://cdn.pd1.workers.dev/api/file/o5rJcWT1
+17. https://cdn.pd6.workers.dev/api/file/WqUGp7hj
+18. https://cdn.pd7.workers.dev/api/file/gzi5pykP
+19. https://cdn.pd8.workers.dev/api/file/3UmAYUGm
+20. https://cdn.pd10.workers.dev/api/file/xUMgZ9YH
+21. https://cdn.pd3-gamedriveorg.workers.dev/api/file/gixBucnk
+22. https://cdn.pd5-gamedriveorg.workers.dev/api/file/brHWY3VT
+23. https://cdn.pd9-gamedriveorg.workers.dev/api/file/xjPycEFb
+24. https://cdn.pd1.workers.dev/api/file/SxnDhaJF
+25. https://cdn.pd7.workers.dev/api/file/Q2yL45X4
+26. https://cdn.pd8.workers.dev/api/file/yB8UnjqH
+27. https://cdn.pd10.workers.dev/api/file/Xe29PiwT
+28. https://cdn.pd3-gamedriveorg.workers.dev/api/file/gRU6buo5
+29. https://cdn.pd10.workers.dev/api/file/LJReBgq5
+30. https://cdn.pd3-gamedriveorg.workers.dev/api/file/4hoh6wni
